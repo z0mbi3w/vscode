@@ -1,6 +1,6 @@
 # vscode
 falei sobre os olhos de uma pessoa
-eu gosto uito de sushi, uma comida japonesa
+eu gosto muito de sushi, uma comida japonesa
 o meu amigo felipe mader pesou o clima depois de falar uma frase
 a mariana minha amiga ama o cantor de jazz com base em rap e trap "dfideliz"
 eu amo um trapper chamado Massaru, ele canta varias musias boas e tem um boombap legal
